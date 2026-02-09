@@ -1,1 +1,1 @@
-All content you can find in https://www.tiktok.com/@valen.teacher and https://www.youtube.com/@ValenTeacher/videos is also from my portfolio
+All content you can find in https://www.instagram.com/one_on_one_english_classes/ - https://www.tiktok.com/@valen.teacher and https://www.youtube.com/@ValenTeacher/videos is also from my portfolio 
